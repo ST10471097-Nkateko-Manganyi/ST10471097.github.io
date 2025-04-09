@@ -1,2 +1,2 @@
-# ST10471097-Nkateko-Managnyi.github.io
+# ST10471097.github.io
 Some other shandis
